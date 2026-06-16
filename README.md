@@ -1,1 +1,1 @@
-# AdsVf
+google.com, pub-2729119195236454, DIRECT, f08c47fec0942fa0
